@@ -15,7 +15,7 @@ Ist vielleicht fuer die meisten Leute irrelevante Itupfelreiterei, aber ich find
 Dann kommt naturlich die Erklaerung dass Frauen einfach in weniger gut bezahlten Berufen arbeiten.
 > sondern vor allem, weil Frauen in so viel größerer Zahl besonders schlecht bezahlte Berufe wie Kosmetikerin, Verkäuferin oder Friseurin ergreifen.
 
-Das stimmt naturlich. Aber das wird mit 
+Das stimmt naturlich. Aber das wird mit folgendem relativiert.
 > Aber obwohl Schulen, Berufsmessen und Medien seit 40 Jahren raten, dass Frauen seltener Friseurinnen und öfter Ingenieurinnen werden sollen,
 > geschieht das nur sehr zögernd: Fast kann man den Eindruck gewinnen, dass ihr Interesse an Technik einfach viel geringer ist.
 
